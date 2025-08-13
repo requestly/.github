@@ -1,1 +1,1 @@
-[![Requestly](https://github.com/requestly/.github/assets/16779465/491b501c-1466-4d6a-a97c-6d98be35d296)](https://requestly.com)
+[![Requestly](https://github.com/user-attachments/assets/526e6e17-cdaa-435a-8b0c-171c8add6e35)](https://requestly.com)
